@@ -1,0 +1,2 @@
+# zjdisj
+skcdod jrisv ksh 
